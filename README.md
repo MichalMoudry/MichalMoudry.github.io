@@ -1,1 +1,0 @@
-# michalmoudry.github.io
